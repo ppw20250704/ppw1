@@ -20,4 +20,4 @@
 
 无论你是在寻找经典的日本女优作品，还是最新的日本AV影片，这里都有最丰富的视频库等着你。我们致力于为你提供最好的观影体验，确保你能在没有干扰的情况下，尽情享受高清的日本AV资源。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link]( https://github.com/ppw20250704/ppw1 ）</span>
